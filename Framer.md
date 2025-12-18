@@ -1,0 +1,7 @@
+- https://www.framer.com/marketplace/templates/prismo/
+- https://www.framer.com/marketplace/templates/dreelio/
+- https://www.framer.com/marketplace/templates/draftr/
+- https://www.framer.com/marketplace/templates/didasko/
+- https://www.framer.com/marketplace/templates/meelo/
+- https://www.framer.com/marketplace/templates/flowline/
+- https://www.framer.com/marketplace/templates/portavia/
